@@ -1,4 +1,7 @@
-### Hi there 👋
+# im stupid and i genuinely dont know how 2 program forreal
+
+https://i.imgur.com/e1m96XB.png
+
 
 <!--
 **pixeljammed/pixeljammed** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
