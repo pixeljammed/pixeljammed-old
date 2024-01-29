@@ -1,6 +1,6 @@
 # im stupid and i genuinely dont know how 2 program forreal
 
-https://i.imgur.com/e1m96XB.png
+![sigma](https://i.imgur.com/e1m96xb.png)
 
 
 <!--
