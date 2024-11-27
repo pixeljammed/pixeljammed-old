@@ -1,1 +1,3 @@
-[![JcNhsx1.md.png](https://iili.io/JcNhsx1.md.png)](https://freeimage.host/i/JcNhsx1)
+## Milo Tekchandani's Github
+Under Construction.
+Projects viewable below - take notice of the licenses!
